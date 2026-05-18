@@ -1,5 +1,5 @@
 
-![alt text](WideOrLogo.png)
+![alt text](Untitled114_20260518020705.png)
 ---
 
 I also have my [Unfished Strawpage](https://doconduty.straw.page/) And my [Atabook](https://doconduty.atabook.org/) you can check out!
