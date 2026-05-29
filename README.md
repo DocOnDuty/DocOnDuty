@@ -5,6 +5,7 @@
 ❕This Readme is a WIP ❕ <br/>
 Hey Im Doc! No my Last name isnt Martins <br/>
 Feel free to INT unless i have DNI in my name! I don't bite.. 🦈🦈🦈 <br/>
+However please note that i cant act in character for noth!! i find it funny when people do that but i might be a bit awkward 😭
 
 Skins you'll probably see me in include Perry/Mdc P, Dante and Tenna, i hang around lower docks sometimes and if im not there I'm likely in a Hangout/GTC or Lab, occasionally Oc Makers<br/>
 
