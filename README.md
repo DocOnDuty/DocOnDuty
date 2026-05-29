@@ -11,6 +11,8 @@ Skins you'll probably see me in include Perry/Mdc P, Dante and Tenna, i hang aro
 Fandoms: <br/>
 Limbus, Lob Corp, Deltarune, Nine Sols and more! <br/>
 
+ZERO medical science, ZERO discoveries ONLY grown adults fighting eachother, what is OR Operation even about man
+
 ---
 I also have my [Unfished Strawpage](https://doconduty.straw.page/) And my [Atabook](https://doconduty.atabook.org/) you can check out! 
 Thanks for reading, hope you have a lovely day/night
