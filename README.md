@@ -21,5 +21,7 @@ Thanks for reading, hope you have a lovely day/night
 ---
 
 ![alt text](Untitled114_20260518015634.png)
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=doconduty)
+
 
 
