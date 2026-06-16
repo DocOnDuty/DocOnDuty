@@ -1,34 +1,8 @@
+<h1> Working on rehauling this, heres some basic information and a few links for now</h1>
 
-![alt text](Untitled114_20260518020705.png)
-
-
-❕This Readme is a WIP ❕ <br/>
-
----
-
-Hey Im Doc! No my Last name isnt Martens, 
-Feel free to INT unless i have DNI in my name! I don't bite.. 🦈🦈🦈 <br/>
-please note that i cant act in character for noth!! i find it funny when people do that but i might be a bit awkward 😭 <br/>
-
----
-
-<h3> If i do something that makes you uncomfortable, let me know! I wont be able to remember boundaries that were prewritten instead of directly said to me!</h3>
-
-Skins you'll probably see me in include Perry/Mdc P, Dante and Tenna, i hang around lower docks sometimes and if im not there I'm likely in a Hangout/GTC or Lab, occasionally Oc Makers<br/>
-
-Fandoms: <br/>
-Limbus, Lob Corp, Deltarune, Nine Sols and more! <br/>
-
-ZERO medical science, ZERO discoveries ONLY grown adults fighting eachother, what is OR Operation even about man
-
----
-I also have my [Atabook](https://doconduty.atabook.org/) you can check out! 
-Thanks for reading, hope you have a lovely day/night
-
----
-
-![alt text](Untitled114_20260518015634.png)
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=doconduty)
-
-
+feel free to interact, if you found this somehow other than discord or ponytown im gonna have to ask you to turn right round, <br/>
+I like limbus company, few other games and animes you'll mostly see me as "Doc, Dante or Grell" sometimes on docks sometimes not <br/>
+[Atabook](https://doconduty.atabook.org/) | [Carrd (heavily unfinished)](https://doconduty.carrd.co/) | [Artfight is coming up!](https://artfight.net/~%ED%9F%BBDocOnDuty%ED%9F%BB) <br/>
+Might fall silent when around other limbus company fans, dont know why, im fine I'll just be listening <br/>
+also i cant act in character for nothing so the most you'll get from me is a scream, or ticking if im dante
 
