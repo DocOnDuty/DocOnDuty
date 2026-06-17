@@ -1,4 +1,4 @@
-<h1> Working on rehauling this, heres some basic information and a few links for now</h1>
+<p style="font-size:50px;">orking on rehauling this, heres some basic information and a few links for now<p/>
 
 feel free to interact, if you found this somehow other than discord or ponytown im gonna have to ask you to turn right round, <br/>
 I like limbus company, few other games and animes, you'll mostly see me as "Doc, Dante or Grell" sometimes on docks sometimes not <br/>
