@@ -8,3 +8,4 @@ also i cant act in character for nothing so the most you'll get from me is a scr
 ———— <br/>
 I can't remember boundaries in discord channels or offsite profiles, please tell me directly, I'd never intentionally upset someone 
 
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=doconduty)
