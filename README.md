@@ -7,6 +7,10 @@ I like limbus company, few other games and animes, you'll mostly see me as "Doc,
 Might fall silent when around other limbus company fans, dont know why, im fine I'll just be listening <br/>
 also i cant act in character for nothing so the most you'll get from me is a scream, or ticking if im dante <br/>
 ———— <br/>
-I can't remember boundaries in discord channels or offsite profiles, please tell me directly, I'd never intentionally upset someone 
+I can't remember boundaries in discord channels or offsite profiles, please tell me directly, I'd never intentionally upset someone  <br/>
+———— <br/>
+<h4>Dni</h4>
+• Proship (especially Sebaciel) <br/>
+• The black butler fandom in general due to the above <br/>
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=doconduty)
