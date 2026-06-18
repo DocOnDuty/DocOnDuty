@@ -10,7 +10,6 @@ also i cant act in character for nothing so the most you'll get from me is a scr
 I can't remember boundaries in discord channels or offsite profiles, please tell me directly, I'd never intentionally upset someone  <br/>
 ———— <br/>
 <h4>Dni</h4>
-• Proship (especially Sebaciel) <br/>
-• The black butler fandom in general due to the above <br/>
+• Proship (especially Sebaciel shippers) <br/>
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=doconduty)
