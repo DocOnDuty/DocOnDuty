@@ -11,5 +11,6 @@ I can't remember boundaries in discord channels or offsite profiles, please tell
 ———— <br/>
 <h4>Dni</h4>
 • Proship (especially Sebaciel shippers) <br/>
+also this isnt really a DNI but i should just mention that I don't really interact with other black butler fans because of the above 💔
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=doconduty)
